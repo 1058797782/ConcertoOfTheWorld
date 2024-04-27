@@ -6,4 +6,8 @@ maybe on futrue,i want to add card in this game,if u like it.
 
 out now test versions,let's play.
 
-know more please to my bilibili space:<a target="_blank" href="https://space.bilibili.com/34782593">https://space.bilibili.com/34782593</a> (could u give me follow or star)
+know more please to my bilibili space:<a target="_blank" href="https://space.bilibili.com/34782593">BiliBili</a> (could u give me follow or star)
+
+the game official web site:<a target="_blank" href="https://vsinger712.com">ConcertoTheWorld</a>
+
+ahthor team official web site:<a target="_blank" href="https://bbs.lastdream.net">LastDream/34782593</a>
