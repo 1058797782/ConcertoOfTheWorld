@@ -8,6 +8,6 @@ out now test versions,let's play.
 
 know more please to my bilibili space:<a target="_blank" href="https://space.bilibili.com/34782593">BiliBili</a> (could u give me follow or star)
 
-the game official web site:<a target="_blank" href="https://vsinger712.com">ConcertoTheWorld</a>
+the game official web site:<a target="_blank" href="https://www.vsinger712.com">ConcertoTheWorld</a>
 
-ahthor team official web site:<a target="_blank" href="https://bbs.lastdream.net">LastDream/34782593</a>
+ahthor team official web site:<a target="_blank" href="https://bbs.lastdream.net">LastDream</a>
