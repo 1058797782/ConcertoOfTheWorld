@@ -5,3 +5,5 @@ a 2D AVG or galgame and music tap game,character have Luotianyi,yuezhengLing,Yan
 maybe on futrue,i want to add card in this game,if u like it.
 
 out now test versions,let's play.
+
+know more please to my bilibili space:<a href="https://space.bilibili.com/34782593">https://space.bilibili.com/34782593</a>
